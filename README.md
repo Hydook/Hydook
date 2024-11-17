@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Hydook
-- 👀 I’m new on github and IT in egeneral really
+- 👀 I’m new on github and IT in general really
 - 🌱 I’m currently learning/studying 
 - 💞️ I’m looking to discover a new world 
 - 📫 How to reach me ... no need for now... 
